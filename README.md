@@ -2,4 +2,4 @@
 
 hello!
 
-my name is kamakshi...n i love coding...
+my name is kamakshi..I love coding..n everything that involves brain logic application
